@@ -1,3 +1,3 @@
-# <a rel="me" href="https://codeberg.org/kaipyroami">🦆</a>
+# <a rel="👨‍💻🗻" href="https://codeberg.org/kaipyroami">🦆</a>
 
 
